@@ -1,3 +1,6 @@
+Please add me as an Agent Developer [Published] on Discord, my discord username is superwallet#2651
+
+
 # SWAP Event
 
 ## Description
